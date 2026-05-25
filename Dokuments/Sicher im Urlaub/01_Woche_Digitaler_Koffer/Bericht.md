@@ -59,6 +59,6 @@ Am Ende dieser Woche ist Dein Handy **aktuell**, **gesichert** und **reisefertig
 ---
 
 ## Einladung zur Digitalen Sprechstunde
-Wenn Du Hilfe brauchst: Komm einfach vorbei.  
+Wenn Du Hilfe brauchst: Komm einfach vorbei oder in die Teams-Community.  
 Wir machen das gemeinsam – Schritt für Schritt.
 
